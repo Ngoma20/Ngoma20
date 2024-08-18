@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ashley montana 
+vu- 👋 Hi, I’m Ashley montana 
 - 👀 I’m interested in luxe looking 
 - 🌱 I’m currently learning Afrique 
 - 💞️ I’m looking to collaborate on Europe 
